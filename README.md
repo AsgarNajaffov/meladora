@@ -1,0 +1,2 @@
+# meladora
+erzaq magazasi
